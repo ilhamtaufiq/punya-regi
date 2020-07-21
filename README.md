@@ -1,2 +1,0 @@
-# punya-regi
-cuman nitip
